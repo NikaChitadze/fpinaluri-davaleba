@@ -1,0 +1,2 @@
+# fpinaluri-davaleba
+pinaluri davaleba
